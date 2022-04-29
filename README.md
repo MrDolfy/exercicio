@@ -1,0 +1,3 @@
+#                         EXERCICIO
+
+Repositório feito 👌
